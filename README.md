@@ -1,1 +1,1 @@
-im beginner i will studt hard
+im beginner i will study hard
